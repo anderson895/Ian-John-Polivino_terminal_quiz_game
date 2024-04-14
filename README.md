@@ -1,1 +1,1 @@
-![image](https://github.com/anderson895/Ian-John-Polivino_terminal_quiz_game/assets/105678913/4169be17-298a-4377-b7d0-071c06620c8b)
+![image](https://github.com/anderson895/Ian-John-Polivino_terminal_quiz_game/assets/105678913/45944cb8-e749-4d8d-b235-bac6222fcc3e)
